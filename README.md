@@ -6,6 +6,8 @@ HI PLS READ !! :3
 
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
+![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2)
+
 ![Tumblr_l_9835849953272.gif](https://github.com/user-attachments/assets/ac8745d0-5480-4cc3-a0ab-93902ffadf82) ![Tumblr_l_9840717259461.gif](https://github.com/user-attachments/assets/c2ad900b-f41f-40ff-9530-47a968771180) ![Tumblr_l_9829967176046.gif](https://github.com/user-attachments/assets/3dd8e191-8fd1-4973-bf3b-976864d920e0) ![Tumblr_l_10633261201779.gif](https://github.com/user-attachments/assets/32e17dc5-f2e1-4c3e-90b3-31a6c039d95e) ![Tumblr_l_11060758761742.gif](https://github.com/user-attachments/assets/9a13a787-c6aa-4390-85c0-5bd67c107284) ![Tumblr_l_11062513613856.gif](https://github.com/user-attachments/assets/540580c3-8626-48c6-9fb0-8f07649f1980)
 
 • **byf !!** im 18, im a sensitive person , so please interact with caution ! i DO NOT support msi, nor yohio nor rebornica. i just enjoy their art . im neurodivergent (diagnosed w asd and depression) , i love ocs & ocxcanon , i use tone indicatorz and need them , i do not like talking about extreme/triggering topics, be nice :3 n we're good !!
@@ -26,6 +28,8 @@ have a nice day / night !!! ~
 
 ![Tumblr_l_9358228687345.jpg](https://github.com/user-attachments/assets/789a438d-b629-49d1-9445-891751c090aa) ![Tumblr_l_9344295563470.jpg](https://github.com/user-attachments/assets/75a5fcbc-d644-4046-b0cb-9bc2a6d53772) ![Tumblr_l_9333294375785.gif](https://github.com/user-attachments/assets/fb287843-f613-4437-b7f3-73969eab8efc) ![Tumblr_l_9354157036309.jpg](https://github.com/user-attachments/assets/14d46cb4-e17e-45fc-a80b-8fa58932a23f)
 
+
+![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2)
 # thank you for reading ! (⁠✷⁠‿⁠✷⁠)
 
 <img width="716" height="420" alt="Image" src="https://github.com/user-attachments/assets/35ef0a76-d014-4eee-9e8e-1ee7a0cba13f" />
