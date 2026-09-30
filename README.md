@@ -1,10 +1,10 @@
 # (⁠ﾉ⁠◕⁠ヮ⁠◕⁠)⁠ﾉ⁠*⁠.⁠✧
 
+₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
+
 HI PLS READ !! :3
 
 <img width="600" height="434" alt="Image" src="https://github.com/user-attachments/assets/8e929e08-4ccf-4545-87af-fc6a8236bb1d" />
-
-₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
 ![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2)
 
