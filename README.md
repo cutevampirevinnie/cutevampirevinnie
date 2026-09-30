@@ -18,7 +18,7 @@ HI PLS READ !! :3
 
 • **pls int if you like:** VOCALOID, yohio, mindless self indulgence, malice mizer, five nights at freddy's (mostly fanon side: vincent, fanon security guards, gijinka animatronics) , gorillaz , my chemical romance , avril lavigne , blur , cibo matto , ocs , class of 09 , mouthwashing , newgrounds media (picos school and tankmen most), michael Jackson, scene core, studio investigate games. those are what I really like at the moment !!
 
-🦇
+![Tumblr_l_9961307353067.gif](https://github.com/user-attachments/assets/bf6d4f11-76dd-4316-a363-9e2e9df79b6c) ![Tumblr_l_9975151347288.gif](https://github.com/user-attachments/assets/4a47fac4-7c51-4fac-9e0a-1cc01ba16c97) ![Tumblr_l_10942889325250.gif](https://github.com/user-attachments/assets/bb855820-80c1-4a11-801f-35d05e8d0870) ![Tumblr_l_10826953956948.jpg](https://github.com/user-attachments/assets/6d853107-e6f5-4352-8c8f-e76a73ce49fe) ![Tumblr_l_10823157496720.jpg](https://github.com/user-attachments/assets/53c1b18f-1d40-4619-b7b5-7fa390001358) ![Tumblr_l_10183987145139.gif](https://github.com/user-attachments/assets/2871a79a-e31c-4e89-84d6-6a419ec55a3e) 
 
 if you dislike me, block/hide me or don't interact, as simple as that ^_^' harassing me isn't ok .
 
