@@ -8,7 +8,7 @@
 
 ![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2)
 
-please do NOT copy , take too much details from my skins !! pls make ur own skins .
+please do NOT copy , post , take heavy inspiration from my skins !! pls make ur own style and skin .
 
 ![Tumblr_l_9835849953272.gif](https://github.com/user-attachments/assets/ac8745d0-5480-4cc3-a0ab-93902ffadf82) ![Tumblr_l_9840717259461.gif](https://github.com/user-attachments/assets/c2ad900b-f41f-40ff-9530-47a968771180) ![Tumblr_l_9829967176046.gif](https://github.com/user-attachments/assets/3dd8e191-8fd1-4973-bf3b-976864d920e0) ![Tumblr_l_10633261201779.gif](https://github.com/user-attachments/assets/32e17dc5-f2e1-4c3e-90b3-31a6c039d95e) ![Tumblr_l_11060758761742.gif](https://github.com/user-attachments/assets/9a13a787-c6aa-4390-85c0-5bd67c107284) ![Tumblr_l_11062513613856.gif](https://github.com/user-attachments/assets/540580c3-8626-48c6-9fb0-8f07649f1980)
 
