@@ -12,6 +12,8 @@ please do NOT copy , post , take heavy inspiration from my skins !! pls make ur 
 
 ![Tumblr_l_9835849953272.gif](https://github.com/user-attachments/assets/ac8745d0-5480-4cc3-a0ab-93902ffadf82) ![Tumblr_l_9840717259461.gif](https://github.com/user-attachments/assets/c2ad900b-f41f-40ff-9530-47a968771180) ![Tumblr_l_9829967176046.gif](https://github.com/user-attachments/assets/3dd8e191-8fd1-4973-bf3b-976864d920e0) ![Tumblr_l_10633261201779.gif](https://github.com/user-attachments/assets/32e17dc5-f2e1-4c3e-90b3-31a6c039d95e) ![Tumblr_l_11060758761742.gif](https://github.com/user-attachments/assets/9a13a787-c6aa-4390-85c0-5bd67c107284) ![Tumblr_l_11062513613856.gif](https://github.com/user-attachments/assets/540580c3-8626-48c6-9fb0-8f07649f1980)
 
+![Tumblr_l_1493740432969.gif](https://github.com/user-attachments/assets/aedb87b0-1155-4613-861b-977b6778f2a3)
+
 • **byf !!** im 18, im a sensitive person , so please interact with caution ! i DO NOT support msi, nor yohio nor rebornica. i just enjoy their art . im neurodivergent (diagnosed w asd and depression) , I LOVE ROLEPLAYING (vocaloid most) !!!! , i love ocs & ocxcanon , i use tone indicatorz and need them , i do not like talking about extreme/triggering topics with anyone, be nice :3 n we're good !!
 
 ![Tumblr_l_10029466223788.gif](https://github.com/user-attachments/assets/c266ccff-0304-40c5-b678-bb2e8197b53d) ![Tumblr_l_10027621246058.gif](https://github.com/user-attachments/assets/41da9473-2a43-425f-bb25-91dc1f2f001e) ![Tumblr_l_10031393477594.gif](https://github.com/user-attachments/assets/584816be-2232-400b-8770-742a7b3405bb) ![Tumblr_l_10035350319206.gif](https://github.com/user-attachments/assets/2116b213-1bf1-480a-a6fe-f9eb0b07ecd3)
