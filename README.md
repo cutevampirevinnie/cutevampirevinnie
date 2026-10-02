@@ -6,7 +6,7 @@
 
 <img width="600" height="434" alt="Image" src="https://github.com/user-attachments/assets/8e929e08-4ccf-4545-87af-fc6a8236bb1d" />
 
-![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2)
+![Tumblr_l_13205286509516.gif](https://github.com/user-attachments/assets/7c743345-4ae8-42d8-ae30-b86e5acf8ba2) ![Tumblr_l_13047728500206.gif](https://github.com/user-attachments/assets/84099465-46c6-4261-a226-6af4530ebb90)![Tumblr_l_13047728500206.gif](https://github.com/user-attachments/assets/84099465-46c6-4261-a226-6af4530ebb90)![Tumblr_l_13047728500206.gif](https://github.com/user-attachments/assets/84099465-46c6-4261-a226-6af4530ebb90)
 
 please do NOT copy , post , take heavy inspiration from my skins !! pls make ur own style and skin .
 
