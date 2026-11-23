@@ -2,7 +2,7 @@
 
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
-<img width="600" height="434" alt="Image" src="https://github.com/user-attachments/assets/8e929e08-4ccf-4545-87af-fc6a8236bb1d" />
+![6a8e2f2acad57cbc84e76321ee5ab936 (2).jpg](https://github.com/user-attachments/assets/77fc6234-2cc5-4cb6-b67d-4675b5bded32)
 
 [                    sign my atabook pls !! ^_^](https://cutevampirevinnie.atabook.org/)
 
@@ -34,6 +34,7 @@ have a nice day / night !!! ~
 
 # thank you for reading ! (⁠✷⁠‿⁠✷⁠)
 
-<img width="716" height="420" alt="Image" src="https://github.com/user-attachments/assets/35ef0a76-d014-4eee-9e8e-1ee7a0cba13f" />
+![5df8a3e789776fa59285f70a2c78eef5-2-1.gif](https://github.com/user-attachments/assets/df01b298-b689-4fc0-bcf1-b31ebbc95513)
+
 ₊˚ ‿︵‿︵‿︵‿︵‿︵୨୧ · · 🦇 · · ୨୧‿︵‿︵‿︵‿︵‿︵ ˚₊
 
